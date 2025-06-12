@@ -1,2 +1,0 @@
-# Proyecto-TT
-Pre Entrega
